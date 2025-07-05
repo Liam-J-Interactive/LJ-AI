@@ -1,2 +1,3 @@
 # LJ-AI-
 This Contains The Code For LJ AI GOOGLE ASSINTANT AND SIRI SUCK! MY AI's Better!!!!!!!!!!!!!!!!!!!!!!                                                                                                                                                                            Al\so This AI IS OPEN SOURCE!
+ Our Site for circle communitys here you go                                                                                                                                                                         Website To Open  https://studio.pickaxe.co/_embed/K2IAO5J6R3?d=deployment-0e2e26e8-4dc4-40ed-b8a0-8a5276dce1d1 
